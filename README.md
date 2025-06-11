@@ -2,7 +2,7 @@
 Perkenalkan nama saya Morissha.<br>
 Saya masih terus belajar ingin tahu apa itu coding dan ingin terus belajar sampai tau <br>
 Saya kuliah di [Universitas Perjuangan](https://pmb.unper.ac.id/).<br>
-Jika kamu mau kenalan dengan ku, silakan ikuti akun Discordku ya.<br>
+Jika kamu mau kenalan dengan ku, silakan ikuti akun Discordku ya. Discord: morss06.<br>
 
 <p align="left">
 <a href="https://github.com/Morissha">
